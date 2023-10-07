@@ -1,0 +1,1 @@
+Hello I made this contact page because i want people to put their suggestion and that way i can put their smoothie on their website and give them credit. Also if people have question about this website or if they have an opion on this website then i will respond immediately to see what they are saying. 
